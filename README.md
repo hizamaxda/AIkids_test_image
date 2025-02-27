@@ -1,0 +1,1 @@
+# AIkids_test_image
